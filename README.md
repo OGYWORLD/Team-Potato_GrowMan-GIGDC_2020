@@ -7,4 +7,8 @@
 
 * 게임명: 키워주세요(Grow Man)
 
-https://drive.google.com/file/d/1q-V9CnBee1QRPHxO3X_0oTYiLBG0q2VD/view?usp=sharing
+<hr/>
+
+> 게임 설명
+
+## <b>"편지를 읽고 식물을 키워주세요. 그게 다 예요."</b>
