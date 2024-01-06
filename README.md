@@ -26,3 +26,6 @@
 혹시 일부러 식물을 죽일 생각인 건 아니죠?
 
 <br>
+
+> 게임 플레이 영상
+https://youtu.be/4JuMwjviW5E
