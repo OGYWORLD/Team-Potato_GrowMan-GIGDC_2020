@@ -29,6 +29,4 @@
 
 > 게임 플레이 영상
 
-<br>
-
 https://youtu.be/4JuMwjviW5E
